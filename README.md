@@ -2,5 +2,5 @@
 Alejandro Salinas
 Alexi Peloso
 Carlos Arando
-Gaston Vargas 24 Lanus
-R. Alexandre Emerson Vivar Toledo
+Gaston Vargas
+R. Alexandre Emerson Vivar Toledo 26 años,, Ciudad de San Justo
